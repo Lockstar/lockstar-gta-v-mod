@@ -1,5 +1,5 @@
-# ![lgmicon](http://i.imgur.com/MBCoEKN.png) GTA V Mod
+# ![lgmicon](http://i.imgur.com/ape6LyV.png) GTA V Mod
 #### Lockstar GTA V Mod is a multi-purpose cheat tool for Grand Theft Auto 5
-![lockstar gta mod](http://i.imgur.com/mfjQjF8.png)
+![lockstar gta mod](http://i.imgur.com/ac4lSPO.png)
 
 ###Coming Soon
